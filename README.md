@@ -2,8 +2,8 @@
 
 문의 사항은 아래 이메일로 부탁드립니다.
 
-최유진 : uznhigh@snu.ac.kr
+이승윤 : rats96@snu.ac.kr
 
 김동빈 : dongbin413@snu.ac.kr
 
-이승윤 : rats96@snu.ac.kr
+박진성 : jinseong@snu.ac.kr
